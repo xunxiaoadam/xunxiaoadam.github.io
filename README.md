@@ -1,6 +1,6 @@
 # **Welcome To Adam's Home**
 
-## My Talent
+## _My Talent_
 ### One person must have many kinds of talents. I can play guitar, basketball, football and so on. But personally speaking, I think my greatest talent is calligraphy.
 ### Some people may not know what calligraphy is.Well, it is a type of handwriting using a bamboo brush that was widely accepted as the main tool to write something in the past when pens hadn' t been invented. Now, it has been considered as a personal recreational activity as we now have more advanced and efficient ways of leaving marks on the paper such as typing, laser printing and so forth.  
 ### Actually, I hadn' t realized that I got this talent until last year when I was locked at home for compulsory quarantine. You know, I had nothing to do except for studying and playing online games. Then, my father got me a set of Chinese calligraphy brush pens and a copybook on which I could write. It took me only a couple of minutes to get the hang of it. I mean, my handwriting was like 90% the same as those printed samples. My parents were having jaw-dropping facial expressions seeing all my work. So, their recognition has made me work harder on it to kind of tap my full potential on calligraphy. However, l think I need to polish this skill by paying more attention to the details such as the force control when I draw the radical of the word. I know I was born with this innate talent of imitation but that only works well if I put much time and effort into calligraphy.
